@@ -16,3 +16,4 @@
 - [<程序员学英语——Average Salary 平均工资>](https://zhuanlan.zhihu.com/p/142971551)
 - [<Life is invaluable 生命至上！>](https://zhuanlan.zhihu.com/p/144635299)
 - [<程序员学英语——外交部长王毅铿锵语录！>](https://zhuanlan.zhihu.com/p/144970733)
+- [<程序员学英语——在理发店的英文表达 Getting a hair cut>](https://www.toutiao.com/i6835037787104739853/)
