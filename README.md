@@ -21,3 +21,4 @@
 - [<程序员学英语——外交部长王毅铿锵语录！>](https://zhuanlan.zhihu.com/p/144970733)
 - [<程序员学英语——在理发店的英文表达 Getting a hair cut>](https://www.toutiao.com/i6835037787104739853/)
 - [<程序员学英语——“话费、流量、套餐”怎么说>](https://www.toutiao.com/i6836164855452402183/)
+- [<程序员学英语——“reject、deny、refuse”区别能搞懂不？>](https://www.toutiao.com/i6836173638429835780/)
