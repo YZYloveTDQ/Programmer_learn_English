@@ -23,3 +23,4 @@
 - [<程序员学英语——“话费、流量、套餐”怎么说>](https://www.toutiao.com/i6836164855452402183/)
 - [<程序员学英语——“reject、deny、refuse”区别能搞懂不？>](https://www.toutiao.com/i6836173638429835780/)
 - [<程序员学英语——租房对话>](https://www.toutiao.com/i6838363282437308942/)
+- [程序员学英语：Talking about learning English](https://juejin.im/post/5f053156518825742109cc7d)
